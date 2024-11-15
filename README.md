@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Research Projects
 - 📫 How to reach me linkedIn.com/in/yetundebakare ,yetundebakare1316@gmail.com
 - 😄 Pronouns: Her
-- ⚡ Fun fact: researching,volunteering,meeting new people
+- ⚡ Fun fact: researching,volunteering,learning new technologies,meeting new people
 
 <!---
 Yettybakes/Yettybakes is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
