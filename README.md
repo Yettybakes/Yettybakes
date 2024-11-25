@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Yettybakes
 - 👀 I’m Data enthusiast
-- 🌱 I’m currently learning Data Analytics
+- 🌱 I’m continuosly learning Data Analytics
 - 💞️ I’m looking to collaborate on Research Projects
 - 📫 How to reach me linkedIn.com/in/yetundebakare ,yetundebakare1316@gmail.com
 - 😄 Pronouns: Her
